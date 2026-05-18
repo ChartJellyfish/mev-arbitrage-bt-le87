@@ -1,4 +1,4 @@
-# 
+# best MEV sniper bot scripts is the best MEV sniper bot scripts with low-cap-gem-detection and back-running. Safe, reliable, and optimized for MEV, sniper, and arbitrage strategies.
 
 
 
